@@ -8,7 +8,7 @@ Key findings summary:
 
 Here are the key features identifed for these drivers who are more likely to accept the bar coupons.  
 1. Go to bar very often every month  
-2. Doesn't have a Kid in the car
+2. Doesn't have a kid in the car
 
 
 Here are the key features identifed for these drivers who are more likely to accept the decent restaurants ($20–$50) coupons.  
